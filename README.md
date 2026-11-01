@@ -1,1 +1,1 @@
-#Birinchi loyiham
+#Mening birichi loyiham
